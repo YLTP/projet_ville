@@ -5,3 +5,5 @@ Ce projet était demandé par l'école. Toutes les écoles D.C participait à ce
 Nous étions un groupe de 5 étudiants et nous avions décidé de partir sur un format de vidéo "Bref".
 
 Missions : Création de logo, scénario, catchline, montage,...
+
+Lien : https://www.youtube.com/watch?v=bntmuHZanO4&feature=youtu.be
